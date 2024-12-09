@@ -2,7 +2,7 @@
 
  byi  ![](https://64.media.tumblr.com/tumblr_m9g5tzEbZ91qid2nw.gif)
 
-i make kms/die, if that makes you uncomfortable hide my messages. i freely block/ignore/ghost ppl that make me uncomfortable. im also a furry and apart of the kemonomimi. i use emoticons when typing. somewhat on discord - feel free to ask for it if you wanna talk on there, mostly on roblox if im not working or out. do not be weird or strange around me if your a child, this goes for adults too. i will hide you without hesitation ^-^. i make a lot of spelling mistakes since i type fast, so sorry about that. not the best at starting conversations, i mostly sit in game afk watching others and admiring everyone’s ponies. feel free to come sit by or with me. you can find me outside of bakery and docks for safe server, you can find me in the transformers area, outside bakery, or docks for 18+ server !! 
+ i freely block/ignore/ghost ppl that make me uncomfortable. im apart of the furry community and kemonomimi community. i use emoticons when typing. somewhat on discord - feel free to ask for it if you wanna talk on there, mostly on roblox if im not working or out. do not be weird or strange around me if your a child, this goes for adults too. i will hide you without hesitation ^-^. i make a lot of spelling mistakes since i type fast, so sorry about that. not the best at starting conversations, i mostly sit in game afk watching others and admiring everyone’s ponies. feel free to come sit by or with me. you can find me outside of bakery and docks for safe server, you can find me in the transformers area, outside bakery, or docks for 18+ server !! 
 
 
 side note : you can take inspiration from my skins, BUT do not just outright copy them ･᷄-･᷅ 
